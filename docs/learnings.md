@@ -2,4 +2,4 @@
 
 **Write your name and learnings here!**
 
-Start here
+I'm Mihir, and I learned about the importance of collaboration.
